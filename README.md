@@ -36,8 +36,8 @@ I’m 30-th years old. I like sports, cars, traveling and code of course. I’m 
 - **Russian:** native speaker
 
 ## Waiting for payment 
- - Full time - from 2.5K euro per month
- - Part-time from 18 euro per hour
+ - Full time - from 3K euro per month
+ - Part-time from 20 euro per hour
 
 
 ## Contact
