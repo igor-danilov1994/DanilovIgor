@@ -35,6 +35,11 @@ I’m 30-th years old. I like sports, cars, traveling and code of course. I’m 
 - **English:** intermediate
 - **Russian:** native speaker
 
+## Waiting for payment 
+ - Full time - from 2.5K euro per month
+ - Part-time from 18 euro per hour
+
+
 ## Contact
 - **Email:** igor.danilov1824@gmail.com
 - **LinkedIn:** https://www.linkedin.com/in/igor-danilov-b025001a5/
